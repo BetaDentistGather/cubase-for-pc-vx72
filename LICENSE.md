@@ -1,4 +1,4 @@
-# 
+# Enhance Cubase for PC | Cubase for Windows with Cubase for PC | Cubase for Windows best Template: virtual-instruments & automation, the #1 template. Includes virtual-instruments
 
 
 
